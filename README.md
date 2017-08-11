@@ -12,5 +12,7 @@ eres	digno	o	no	de	cruzar	estas	tierras.
 > Debes escribir	un	ensayo	de	20	líneas	expresando	tu	opinión a	favor	de	por	
 qué	el	rey	Theodim	debería	dejarte	vivir.
 
+*
+
 > Luego	 de	 redactar	tu	ensayo,	 discute	en	 10	líneas	el	 uso	 que	 hiciste	 de	los	
 elementos	del	pensamiento.	¿Están	presentes?	¿Cuáles	son?
